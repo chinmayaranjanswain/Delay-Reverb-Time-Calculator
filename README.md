@@ -7,7 +7,7 @@
 
 ---
 
-### 📥 [Download the Windows .exe](YOUR_GOOGLE_DRIVE_LINK_HERE)
+### 📥 [Download the Windows .exe](https://drive.google.com/file/d/1m7j6Z-voa7YSWJyxROFb8jsSFcYhtg2-/view?usp=sharing)
 
 ---
 
